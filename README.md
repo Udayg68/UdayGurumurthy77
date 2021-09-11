@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @UdayGurumurthy77
 - 👀 I’m interested in Learning New Idea!!!
-- 🌱 I’m currently In Engineering!!!
-- 💞️ I’m looking For Learning New Programming Concept!!
+- 🌱 I’m currently A Student !!!
 - 📫 How to reach me --- You Can Reach Me Though Discord!!!
 
 <!---
