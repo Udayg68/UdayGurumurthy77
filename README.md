@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @UdayGurumurthy77
-- 👀 I’m interested in Learning New Idea!!!
+- 👀 I’m interested in Learning New Stuffs!!!
 - 🌱 I’m currently A Student !!!
 - 📫 How to reach me --- You Can Reach Me Though Discord!!!
 
